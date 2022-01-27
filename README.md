@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Adaptor
+- 👀 I’m interested in roblox development
+- 🌱 I’m currently learning building
+- 💞️ I’m looking to collaborate on roblox games
+- 📫 How to reach me Adaptor#5349
